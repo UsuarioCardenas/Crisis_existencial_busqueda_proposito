@@ -30,3 +30,10 @@ En cuanto a la espiritualidad, siento que aún no la tengo completamente present
 Si solo me quedara un año de vida, creo que dejaría de lado las presiones externas. Estos últimos años han sido bastante estresantes, y si tuviera ese tiempo limitado, lo usaría para relajarme, para encontrar paz y tranquilidad.
 
 Me enfocaría en disfrutar lo simple, en reconectar conmigo mismo y con las personas que realmente valoro.
+
+💬 Parte 2: Actividad en parejas
+Fortalezas en momentos difíciles:
+Diria que es la primera que mencione lo de universidad nacional que si bien es algo que sigue marcado en mi y como que no puedo recordar, supongo que se le puedo decir que se le suman mas sucesos que pase que tambien me hicieron dudar de mi mismo, quizas en el colegio que si senti que era molestado por bueno se podria decir ser un poco mongol y no dar tanta risa aparte que me costaba socializar con los demas.
+Escuchar con empatía
+
+Uno de los más marcados de mi companero Felipe fue durante un temblor. Sintio una profunda incertidumbre y miedo, no supo cómo reaccionar. Esa sensación de no tener control sobre nada lo llevó a cuestionarme muchas cosas.
